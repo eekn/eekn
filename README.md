@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @eekn
 - 👀 I’m interested in coding and gaming
-- 🌱 I’m currently learning coding and game develpment
+- 🌱 I’m currently learning coding and game development
 
 - 📫 How to reach me you can gmail to:emrekahraman2009@gmail.com
 
